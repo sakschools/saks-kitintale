@@ -3,7 +3,7 @@ title: HEAD PREFECT’S MESSAGE
 ---
 # HEAD PREFECT’S MESSAGE
 
-Dear Fellow Pupils, Teachers, Parents, and Esteemed Visitors,
+**Dear Fellow Pupils, Teachers, Parents, and Esteemed Visitors,**
 
 Greetings to you all.
 
@@ -18,6 +18,8 @@ Our school also fosters good behavior and strong values. Pupils attend Islamic T
 For those of us in the boarding section, the school has created a comfortable and nurturing environment. Boarding life teaches us responsibility, time management, and how to live harmoniously with others from diverse backgrounds.
 
 Furthermore, we are exposed to career exhibitions, where we learn about various professions and what it takes to achieve our dreams. This motivates us to set goals and work hard for the future we desire.
+
+I would also like to extend my heartfelt gratitude to our parents. Your unwavering support and encouragement play a crucial role in our success. Thank you for believing in us and for all that you do to help us thrive.
 
 To my fellow pupils, thank you for giving me the opportunity to serve you. I promise to be your voice, listen to your ideas, and collaborate with our teachers to make our school even better. I encourage all of us to continue supporting one another, respecting our teachers, and doing what is right at all times.
 
