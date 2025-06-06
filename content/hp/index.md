@@ -7,7 +7,7 @@ Dear Fellow Pupils, Teachers, Parents, and Esteemed Visitors,
 
 Greetings to you all.
 
-I am truly honored to serve as the Guild President of Sir Apollo Kaggwa Primary School Kitintale. As a pupil leader, I take pride in representing a school that inspires us to be disciplined, focused, and confident in everything we do—both in class and beyond.
+I am truly honored to serve as the Guild President of Sir Apollo Kaggwa Primary School Kitintale. As a pupil leader, I take pride in representing a school that inspires us to be disciplined, focused, and confident in everything we do, both in class and beyond.
 
 Our school is a special place where every child is supported to do their best. The teachers work diligently to make learning interesting and meaningful. Through classwork, group activities, and guidance, we are consistently encouraged to aim higher and never give up. I am grateful to be part of a school that believes in the success of every learner.
 
