@@ -10,7 +10,7 @@ At the helm of this capable team is the headmaster, Mr. Seruyange Mathias. With 
 
 
 
-The qualifications of the teaching staff align with the stringent requirements set by the Ministry of Education and Sports. Ranging from Grade III certifications to graduate, the academic backgrounds of the educators ensure that students receive a high-quality education. Many teachers have also participated in upgrading courses at various universities, and the school regularly organizes capacity-building workshops. These workshops focus on enhancing teaching strategies, classroom management, and innovative educational practices, ensuring that staff are well-equipped to meet the evolving needs of their students.
+The qualifications of the teaching staff align with the stringent requirements set by the Ministry of Education and Sports. Ranging from Grade III certifications to graduates, the academic backgrounds of the educators ensure that students receive a high-quality education. Many teachers have also participated in upgrading courses at various universities, and the school regularly organizes capacity-building workshops. These workshops focus on enhancing teaching strategies, classroom management, and innovative educational practices, ensuring that staff are well-equipped to meet the evolving needs of their students.
 
 
 
