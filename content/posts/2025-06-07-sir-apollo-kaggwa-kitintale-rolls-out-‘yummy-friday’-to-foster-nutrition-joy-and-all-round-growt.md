@@ -6,9 +6,9 @@ thumbnail: /img/bf29d62d-bf80-4ccd-ad73-544a843d0f7b.webp
 ---
 ![]()
 
-Sir Apollo Kaggwa Primary School Kitintale is delighted to unveil '***Yummy Friday***,' a thoughtful and learner-centered initiative tailored to enrich the well-being and development of our beloved kindergarten pupils. Though designed as a joyful Friday experience, the official launch was held on Thursday, June 5, 2025, to accommodate the national public holiday on Friday, June 6, 2025. This strategic move ensures every child enjoys the full benefit of this exciting program from the very beginning.
+Sir Apollo Kaggwa Primary School Kitintale is delighted to unveil '**Yummy Friday**,' a thoughtful and learner-centered initiative tailored to enrich the well-being and development of our beloved kindergarten pupils. Though designed as a joyful Friday experience, the official launch was held on Thursday, June 5, 2025, to accommodate the national public holiday on Friday, June 6, 2025. This strategic move ensures every child enjoys the full benefit of this exciting program from the very beginning.
 
-'***Yummy Friday***' is more than a routine mealtime; it is a vibrant expression of our unwavering commitment to nurturing the whole child, physically, emotionally, and intellectually. At the core of this initiative lies a deeply held belief that children learn best when their health, happiness, and holistic growth are carefully nurtured in tandem. This belief continues to guide every initiative we undertake at Sir Apollo Kaggwa Primary School Kitintale.
+'**Yummy Friday**' is more than a routine mealtime; it is a vibrant expression of our unwavering commitment to nurturing the whole child, physically, emotionally, and intellectually. At the core of this initiative lies a deeply held belief that children learn best when their health, happiness, and holistic growth are carefully nurtured in tandem. This belief continues to guide every initiative we undertake at Sir Apollo Kaggwa Primary School Kitintale.
 
 ![](/img/0260a933-ddcd-44a2-bb84-9b3982088c32.jpeg)
 
@@ -29,5 +29,7 @@ Furthermore, compelling insights from the Global Child Nutrition Foundation (GCN
 'Yummy Friday' also represents our broader commitment to creating a nurturing environment where education is truly holistic and inclusive. It reflects our passion for developing well-rounded individuals who are not only academically competent but also emotionally intelligent, socially aware, and physically well.
 
 As we implement this initiative, we do so with gratitude for the continuous support from our parents, guardians, staff, and wider school community. We invite you to journey with us as we transform mealtimes into opportunities for joy, learning, and connection, because at Sir Apollo Kaggwa Primary School Kitintale, we firmly believe that every child deserves to thrive in mind, body, and spirit.
+
+![]()
 
 <https://vm.tiktok.com/ZMSSokAhv/>
