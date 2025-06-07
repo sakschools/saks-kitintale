@@ -1,6 +1,6 @@
 ---
 title: Sir Apollo Kaggwa Kitintale Rolls Out ‘Yummy Friday’ to Foster Nutrition,
-  Joy, and All-Round Growt
+  Joy, and All-Round Growth
 date: 2025-06-07T22:05:20+03:30
 thumbnail: /img/bf29d62d-bf80-4ccd-ad73-544a843d0f7b.webp
 ---
