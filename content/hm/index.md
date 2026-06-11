@@ -29,12 +29,10 @@ To our current pupils and families, thank you for your trust and continued suppo
 
 Together, let us embark on this incredible journey of learning, growth, and discovery.
 
-
-
 Warm regards,  
 
-##### SERUYANGE MATHIAS
+##### MULAMOGI BASHIR 
 
-##### Head Teacher 
+##### Head Teacher
 
 ##### Sir Apollo Kaggwa Primary School – Kitintale
